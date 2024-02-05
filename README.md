@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kellibissell
 - 👀 I’m interested in Crypto and AI
-- 🌱 I’m currently learning AI
+- 🌱 I’m currently learning about interesting Crypto projects
 - 💞️ I’m looking to collaborate on interesting open-source projects
 - 📫 How to reach me kellibissell0ATGMAIL
 - That's all.
