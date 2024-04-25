@@ -2,7 +2,7 @@
 - 👀 I’m interested in Crypto and AI
 - 🌱 I’m currently learning about Sora, it's amazing
 - 💞️ I’m looking to collaborate on interesting open-source projects
-- 📫 How to reach me kellibissell0ATGMAIL
+- 📫 How to reach me kellibissell0ATGMAILDOTCOM
 - That's all.
 
 <!---
